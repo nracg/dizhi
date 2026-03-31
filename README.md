@@ -2,7 +2,7 @@
 nracg最新地址
 
 1站入口：www.nryxoo.com
-2站入口：www.nracgy.com
+2站入口：www.ncylele.com
 
 请牢记和保存好以下永久域名(当找不到家时请依次尝试用以下方式找到新地址发布页)
 
